@@ -1,1 +1,1 @@
-# ddos.exe
+# ddos.6kwille.coustum 
